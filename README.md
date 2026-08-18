@@ -1,1 +1,0 @@
-# bangladesh-web-scope-research
